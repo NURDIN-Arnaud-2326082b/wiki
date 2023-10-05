@@ -13,7 +13,7 @@ En **1974**, il fonde avec Maurice Mességué la société **Cœur Assistance**,
 
 &nbsp;
 
-## \_Football\_
+## Football
 
 &nbsp;
 
@@ -29,7 +29,7 @@ Sous sa direction, le club engage de nombreux jeunes joueurs espoirs qui deviend
 
 &nbsp;
 
-## \_polémique Football\_
+## polémique Football
 
 &nbsp;
 
@@ -42,7 +42,7 @@ le défenseur valenciennois **[Jacques Glassmann](https://fr.wikipedia.org/wiki/
 
 &nbsp;
 
-## \_Cyclisme\_
+## Cyclisme
 
 &nbsp;
 
@@ -54,7 +54,7 @@ Passionné de sport, **Bernard Tapie** utilise sa fortune acquise dans les anné
 
 &nbsp;
 
-**\_Dans les années 1980, Bernard Tapie accélère le rythme des rachats d'entreprises. Ses rachats les plus connus sont :\_**
+**Dans les années 1980, Bernard Tapie accélère le rythme des rachats d'entreprises. Ses rachats les plus connus sont :**
 
 &nbsp;
 
