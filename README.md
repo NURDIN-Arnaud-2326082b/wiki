@@ -58,14 +58,24 @@ Passionné de sport, **Bernard Tapie** utilise sa fortune acquise dans les anné
 
 &nbsp;
 
-	* **[La Vie claire](https://fr.wikipedia.org/wiki/La_Vie_claire)**, rachetée 1 franc en 1980 et revendue à Distriborg par le CDR, Consortium de réalisation du Crédit Lyonnais en 1995
+**[La Vie claire](https://fr.wikipedia.org/wiki/La_Vie_claire)**, rachetée 1 franc en 1980 et revendue à Distriborg par le CDR, Consortium de réalisation du Crédit Lyonnais en 1995
 
-	* **[Terraillon](https://fr.wikipedia.org/wiki/Terraillon)**, rachetée 1 franc en 1981 et revendue 125 millions de francs en 1986 à l'américain Measurement Specialities21
+&nbsp;
 
-	* **[Look](https://fr.wikipedia.org/wiki/Terraillon)**, rachetée 1 franc en 198322 et revendue pour 260 millions de francs en 1988 au propriétaire des montres suisses Ebel
+**[Terraillon](https://fr.wikipedia.org/wiki/Terraillon)**, rachetée 1 franc en 1981 et revendue 125 millions de francs en 1986 à l'américain Measurement Specialities21
 
-	* **[Testut](https://fr.wikipedia.org/wiki/Testut_(entreprise))**, rachetée 1 franc en 1983 et revendue par le CDR en 1999 au groupe américano-suisse Mettler Toledo
+&nbsp;
 
-	* **[Wonder](https://fr.wikipedia.org/wiki/Wonder_(entreprise))**, rachetée 1 franc en 198424 et revendue 470 millions de francs en 1988 à l'américain Ralston
+**[Look](https://fr.wikipedia.org/wiki/Terraillon)**, rachetée 1 franc en 198322 et revendue pour 260 millions de francs en 1988 au propriétaire des montres suisses Ebel
 
-	* **[Donnay](https://fr.wikipedia.org/wiki/Donnay_(marque))**, rachetée 1 franc en 1988 et revendue 100 millions de francs en 1991 à la région wallonne.
+&nbsp;
+
+**[Testut](https://fr.wikipedia.org/wiki/Testut_(entreprise))**, rachetée 1 franc en 1983 et revendue par le CDR en 1999 au groupe américano-suisse Mettler Toledo
+
+&nbsp;
+
+**[Wonder](https://fr.wikipedia.org/wiki/Wonder_(entreprise))**, rachetée 1 franc en 198424 et revendue 470 millions de francs en 1988 à l'américain Ralston
+
+&nbsp;
+
+**[Donnay](https://fr.wikipedia.org/wiki/Donnay_(marque))**, rachetée 1 franc en 1988 et revendue 100 millions de francs en 1991 à la région wallonne.
